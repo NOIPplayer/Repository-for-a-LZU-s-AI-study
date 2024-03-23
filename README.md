@@ -1,3 +1,4 @@
 # Repository-for-a-LZU-s-AI-study
 
-Connet with qq 1594511719 if you have any questions.
+More surprises are on the way.
+Connect with qq 1594511719 if you have any questions.
